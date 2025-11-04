@@ -1,0 +1,1 @@
+https://raw.githubusercontent.com/Kajolyzer/kamojawelding/ae5c03179fe7f6c8dbe8094a72875c5caadea6a4/1background.jpeg
